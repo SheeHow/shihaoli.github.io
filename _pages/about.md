@@ -60,7 +60,7 @@ I have published 8 papers in peer-reviewed journals and conferences, focusing on
 ## Awards & Recognition
 
 - Warren A. and Alice L. Meyer Endowed Scholarship (UT Austin)
-- Dean's List (Multiple Semesters, Penn State)
+- Dean's List (7 Semesters, Penn State)
 - CSWA Certified in SolidWorks
 
 ## Professional Service
